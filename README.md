@@ -1,75 +1,75 @@
 # 1
-![](/Pasted%20image%2020240612144435.png)
+![](/attachments/Pasted%20image%2020240612144435.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612144529.png)
+  ![](/attachments/Pasted%20image%2020240612144529.png)
 
   
 </details>
 
 # 2
-![](/Pasted%20image%2020240612144851.png)
+![](/attachments/Pasted%20image%2020240612144851.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612144926.png)
+  ![](/attachments/Pasted%20image%2020240612144926.png)
 
   
 </details>
 
 # 3
-![](/Pasted%20image%2020240612145008.png)
+![](/attachments/Pasted%20image%2020240612145008.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612145126.png)
+  ![](/attachments/Pasted%20image%2020240612145126.png)
 
   
 </details>
 
 # 4
-![](/Pasted%20image%2020240612145223.png)
+![](/attachments/Pasted%20image%2020240612145223.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612145412.png)
+  ![](/attachments/Pasted%20image%2020240612145412.png)
 
   
 </details>
 
 # 5
-![](/Pasted%20image%2020240612145624.png)
+![](/attachments/Pasted%20image%2020240612145624.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612145651.png)
+  ![](/attachments/Pasted%20image%2020240612145651.png)
 
   
 </details>
 
 # 6
-![](/Pasted%20image%2020240612145725.png)
+![](/attachments/Pasted%20image%2020240612145725.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612145751.png)
+  ![](/attachments/Pasted%20image%2020240612145751.png)
 
   
 </details>
 
 # 7
-![](/Pasted%20image%2020240612145816.png)
+![](/attachments/Pasted%20image%2020240612145816.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612145855.png)
+  ![](/attachments/Pasted%20image%2020240612145855.png)
 
   
 </details>
 
 # 8
-![](/Pasted%20image%2020240612174537.png)
+![](/attachments/Pasted%20image%2020240612174537.png)
 <details>
   <summary>Ответ</summary>
   
@@ -79,37 +79,37 @@
 </details>
 
 # 9
-![](/Pasted%20image%2020240612174742.png)
+![](/attachments/Pasted%20image%2020240612174742.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612174817.png)
+  ![](/attachments/Pasted%20image%2020240612174817.png)
 
   
 </details>
 
 # 10
-![](/Pasted%20image%2020240612174855.png)
+![](/attachments/Pasted%20image%2020240612174855.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612174922.png)
+  ![](/attachments/Pasted%20image%2020240612174922.png)
 
   
 </details>
 
 # 11
-![](/Pasted%20image%2020240612175003.png)
+![](/attachments/Pasted%20image%2020240612175003.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612175038.png)
+  ![](/attachments/Pasted%20image%2020240612175038.png)
 
   
 </details>
 
 # 12
-![](/Pasted%20image%2020240612175114.png)
+![](/attachments/Pasted%20image%2020240612175114.png)
 <details>
   <summary>Ответ</summary>
   
@@ -119,47 +119,47 @@
 </details>
 
 # 13
-![](/Pasted%20image%2020240612175152.png)
+![](/attachments/Pasted%20image%2020240612175152.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612175240.png)
+  ![](/attachments/Pasted%20image%2020240612175240.png)
 
   
 </details>
 
 # 14
-![](/Pasted%20image%2020240612175305.png)
+![](/attachments/Pasted%20image%2020240612175305.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612175337.png)
+  ![](/attachments/Pasted%20image%2020240612175337.png)
 
   
 </details>
 
 # 15
-![](/Pasted%20image%2020240612175424.png)
+![](/attachments/Pasted%20image%2020240612175424.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612175452.png)
+  ![](/attachments/Pasted%20image%2020240612175452.png)
 
   
 </details>
 
 # 16
-![](/Pasted%20image%2020240612175529.png)
+![](/attachments/Pasted%20image%2020240612175529.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612175556.png)
+  ![](/attachments/Pasted%20image%2020240612175556.png)
 
   
 </details>
 
 # 17
-![](/Pasted%20image%2020240612180137.png)
+![](/attachments/Pasted%20image%2020240612180137.png)
 <details>
   <summary>Ответ</summary>
   
@@ -169,7 +169,7 @@
 </details>
 
 # 18
-![](/Pasted%20image%2020240612180426.png)
+![](/attachments/Pasted%20image%2020240612180426.png)
 <details>
   <summary>Ответ</summary>
   
@@ -179,7 +179,7 @@
 </details>
 
 # 19
-![](/Pasted%20image%2020240612180506.png)
+![](/attachments/Pasted%20image%2020240612180506.png)
 <details>
   <summary>Ответ</summary>
   
@@ -189,17 +189,17 @@
 </details>
 
 # 20
-![](/Pasted%20image%2020240612180605.png)
+![](/attachments/Pasted%20image%2020240612180605.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612180734.png)
+  ![](/attachments/Pasted%20image%2020240612180734.png)
 
   
 </details>
 
 # 21
-![](/Pasted%20image%2020240612180757.png)
+![](/attachments/Pasted%20image%2020240612180757.png)
 <details>
   <summary>Ответ</summary>
   
@@ -209,7 +209,7 @@
 </details>
 
 # 22
-![](/Pasted%20image%2020240612180848.png)
+![](/attachments/Pasted%20image%2020240612180848.png)
 <details>
   <summary>Ответ</summary>
   
@@ -219,27 +219,27 @@
 </details>
 
 # 23
-![](/Pasted%20image%2020240612180923.png)
+![](/attachments/Pasted%20image%2020240612180923.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612180945.png)
+  ![](/attachments/Pasted%20image%2020240612180945.png)
 
   
 </details>
 
 # 24
-![](/Pasted%20image%2020240612181031.png)
+![](/attachments/Pasted%20image%2020240612181031.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181136.png)
+  ![](/attachments/Pasted%20image%2020240612181136.png)
 
   
 </details>
 
 # 25
-![](/Pasted%20image%2020240612181217.png)
+![](/attachments/Pasted%20image%2020240612181217.png)
 <details>
   <summary>Ответ</summary>
   
@@ -249,97 +249,97 @@
 </details>
 
 # 26
-![](/Pasted%20image%2020240612181304.png)
+![](/attachments/Pasted%20image%2020240612181304.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181325.png)
+  ![](/attachments/Pasted%20image%2020240612181325.png)
 
   
 </details>
 
 # 27
-![](/Pasted%20image%2020240612181354.png)
+![](/attachments/Pasted%20image%2020240612181354.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181417.png)
+  ![](/attachments/Pasted%20image%2020240612181417.png)
 
   
 </details>
 
 # 28
-![](/Pasted%20image%2020240612181504.png)
+![](/attachments/Pasted%20image%2020240612181504.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181557.png)
+  ![](/attachments/Pasted%20image%2020240612181557.png)
 
   
 </details>
 
 # 30
-![](/Pasted%20image%2020240612181640.png)
+![](/attachments/Pasted%20image%2020240612181640.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181659.png)
+  ![](/attachments/Pasted%20image%2020240612181659.png)
 
   
 </details>
 
 # 31
-![](/Pasted%20image%2020240612181839.png)
+![](/attachments/Pasted%20image%2020240612181839.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612181858.png)
+  ![](/attachments/Pasted%20image%2020240612181858.png)
 
   
 </details>
 
 # 32
-![](/Pasted%20image%2020240612181923.png)
+![](/attachments/Pasted%20image%2020240612181923.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182018.png)
+  ![](/attachments/Pasted%20image%2020240612182018.png)
 
   
 </details>
 
 # 33
-![](/Pasted%20image%2020240612182137.png)
+![](/attachments/Pasted%20image%2020240612182137.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182206.png)
+  ![](/attachments/Pasted%20image%2020240612182206.png)
 
   
 </details>
 
 # 34
-![](/Pasted%20image%2020240612182414.png)
+![](/attachments/Pasted%20image%2020240612182414.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182453.png)
+  ![](/attachments/Pasted%20image%2020240612182453.png)
 
   
 </details>
 
 # 35
-![](/Pasted%20image%2020240612182517.png)
+![](/attachments/Pasted%20image%2020240612182517.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182542.png)
+  ![](/attachments/Pasted%20image%2020240612182542.png)
 
   
 </details>
 
 # 36
-![](/Pasted%20image%2020240612182603.png)
+![](/attachments/Pasted%20image%2020240612182603.png)
 <details>
   <summary>Ответ</summary>
   
@@ -349,27 +349,27 @@
 </details>
 
 # 37
-![](/Pasted%20image%2020240612182629.png)
+![](/attachments/Pasted%20image%2020240612182629.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182701.png)
+  ![](/attachments/Pasted%20image%2020240612182701.png)
 
   
 </details>
 
 # 38
-![](/Pasted%20image%2020240612182721.png)
+![](/attachments/Pasted%20image%2020240612182721.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182739.png)
+  ![](/attachments/Pasted%20image%2020240612182739.png)
 
   
 </details>
 
 # 39
-![](/Pasted%20image%2020240612182802.png)
+![](/attachments/Pasted%20image%2020240612182802.png)
 <details>
   <summary>Ответ</summary>
   
@@ -379,7 +379,7 @@
 </details>
 
 # 40
-![](/Pasted%20image%2020240612182840.png)
+![](/attachments/Pasted%20image%2020240612182840.png)
 <details>
   <summary>Ответ</summary>
   
@@ -389,27 +389,27 @@
 </details>
 
 # 41
-![](/Pasted%20image%2020240612182915.png)
+![](/attachments/Pasted%20image%2020240612182915.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612182933.png)
+  ![](/attachments/Pasted%20image%2020240612182933.png)
 
   
 </details>
 
 # 42
-![](/Pasted%20image%2020240612182954.png)
+![](/attachments/Pasted%20image%2020240612182954.png)
 <details>
   <summary>Ответ</summary>
   
-  ![](/Pasted%20image%2020240612183009.png)
+  ![](/attachments/Pasted%20image%2020240612183009.png)
 
   
 </details>
 
 # 43
-![](/Pasted%20image%2020240612183130.png)
+![](/attachments/Pasted%20image%2020240612183130.png)
 <details>
   <summary>Ответ</summary>
   
